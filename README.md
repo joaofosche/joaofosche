@@ -1,0 +1,1 @@
+- 👋 Hi, I’m João Schefer and I am studying Computer Science.
